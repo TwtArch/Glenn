@@ -1,7 +1,5 @@
 ## Archived tweets for WokeSlayerJew
-The list below includes 1882 archived tweets by
-
-[WokeSlayerJew](https://twitter.com/WokeSlayerJew).
+The list below includes 1882 archived tweets by [WokeSlayerJew](https://twitter.com/WokeSlayerJew).
 
 
 Please note that all tweets quoted here are sourced from the
